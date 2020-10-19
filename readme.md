@@ -1,0 +1,1 @@
+biseyler yazildi, asiri onemli belgedir bu top secret
